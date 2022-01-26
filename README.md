@@ -5,7 +5,7 @@
 
 -->
 
-🌻 Pronouns: She/her 💬 Languages: Spanish - English :small_blue_diamond: Interests: :coffee: - :pencil: - :art: - :bicyclist: - :recycle:
+🌻 Pronouns: She/her 💬 Languages: Spanish - English :small_blue_diamond: Interests: :coffee: - :art: - :bicyclist: - :recycle: - :earth_americas:
 
 🔭 Currently, I am a master candidate in Social Research & Development. The field of study of my thesis is socioecological recovery of sacrifice zones in Latinamerica. I'm currently doing my thesis as a research assistant in the Regular Fondecyt 1191269: “From sacrifice zones to socio-environmental recovery zones: Participatory construction of criteria for environmental governance and well-being in the bays-port of Quintero-Puchuncaví, Huasco and Coronel, Chile”. 
 
